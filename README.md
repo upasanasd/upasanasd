@@ -2,7 +2,7 @@
 - 👀 I’m interested in data analytics
 - 🌱 I’m currently learning data analytics...
 - 💞️ I’m looking to collaborate on IBM
-- 📫 How to reach me...upasana.ds23@duk.ac.in
+- 📫 How to reach me...upasanasd431@gmail.com
 - 😄 Pronouns: ...She
 - ⚡ Fun fact: ...
 
